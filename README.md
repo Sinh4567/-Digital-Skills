@@ -1,2 +1,2 @@
 # -Digital-Skills
-4956060047-Nguyễn Lưu Sinh: Đây là repository đầu tiên
+NguyenLuuSinh_4956060047_VanHocK49_DaihocQuyNhon
